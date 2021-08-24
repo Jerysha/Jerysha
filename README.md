@@ -3,5 +3,5 @@
 - 🌱 I’m currently learning diferrents programing languajes
 - 💞️ I’m looking to collaborate on any job that i can improve my skills
 - 📫 How to reach me: LinkedIn= https://www.linkedin.com/in/jerysha-sterling-160a9320b
-
+-TikTok= https://vm.tiktok.com/ZMRjvwcsd/
 
